@@ -1,0 +1,1 @@
+aka bu mening 1 chi python projectim
